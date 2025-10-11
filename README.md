@@ -1,8 +1,8 @@
 <div align="center">
   
-  （  [about me](https://rentry.co/romalicious)⠀⠀<img src="https://64.media.tumblr.com/952e15e97be9e656a05b129378f72a61/4a17cf7a49e8c2f3-26/s1280x1920/3aea7823b8d9ad9d3170973cd17f0130cb7f9c5b.pnj" width="50" height="50"/>⠀⠀[pt info](https://rentry.co/purrger)  ）
+  （  [about me](https://rentry.co/romalicious)⠀⠀<img src="https://file.garden/Zu8FAWV7oGLUP1JV/image-removebg-preview%20(1).png" height="100" width="100"/>⠀⠀[pt info](https://rentry.co/purrger)  ）
 
-![](https://64.media.tumblr.com/9dc31f6061f17793b6eafb00ab4a340d/9372725e3891fe74-a8/s2048x3072/2dede6089e890dfe844d7f57fe60ae40cfc327c4.pnj)
+![](https://i.postimg.cc/GhDwQM7T/1dz97b.png)![](https://i.postimg.cc/GhDwQM7T/1dz97b.png)
 
-![](https://i.pinimg.com/736x/a2/80/38/a28038b0a8e04036d101fcbc9ff15fbc.jpg)
+![](https://i.pinimg.com/1200x/90/f2/31/90f231c3f68bef1ae3452024b5c39d63.jpg)
 </div>
