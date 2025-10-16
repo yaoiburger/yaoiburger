@@ -1,6 +1,6 @@
 <div align="center">
   
-   ◜  [about me](https://rentry.co/romalicious)⠀⠀<img src="https://file.garden/Zu8FAWV7oGLUP1JV/image-removebg-preview%20(1).png" height="95" width="70"/>⠀⠀[pt info](https://rentry.co/purrger)  ◞
+   ◜  [about me](https://rentry.co/romalicious)⠀<img src="https://file.garden/Zu8FAWV7oGLUP1JV/image-removebg-preview%20(1).png" height="95" width="70"/>⠀⠀[pt info](https://rentry.co/purrger)  ◞
 
    i love choji tomiyama yurrrrr (^ _ ^˶)
 
