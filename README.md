@@ -1,12 +1,20 @@
 <div align="center">
+
+![](https://dividers.crd.co/assets/images/gallery04/1ea51caf.png?v=05d33f91)
   
-   ◜  [about me](https://rentry.co/romalicious)⠀<img src="https://file.garden/Zu8FAWV7oGLUP1JV/image-removebg-preview%20(1).png" height="95" width="70"/>⠀⠀[pt info](https://rentry.co/purrger)  ◞
+   ﹙ [about me](https://rentry.co/romalicious)⠀⠀<img src="https://64.media.tumblr.com/8a08f49bc8fdcc84403eb00988ac6df5/c13f60e6b277d35c-ea/s640x960/970821cb293ba28fe91a168de81e9271de43a014.pnj" width="67">⠀⠀[pt info](https://rentry.co/purrger) ﹚
+   
+⠀ㅤ
+<!--
+Source - https://stackoverflow.com/a
+Posted by alciregi, modified by community. See post 'Timeline' for change history
+Retrieved 2025-12-23, License - CC BY-SA 4.0
+-->
 
-   i love choji tomiyama yurrrrr (^ _ ^˶)
+<img src="https://i.pinimg.com/1200x/a8/72/ee/a872eed859a9f1fe9d0e23fdc8109f2c.jpg" width="500">
 
-![](https://64.media.tumblr.com/404fb4199bfe3a91f1a554d3edb77845/0c91b70a60d25622-96/s1280x1920/00e5d6f87d54048d6914e7f7e996302a53a82742.pnj)
-⠀
-![](https://i.pinimg.com/1200x/90/f2/31/90f231c3f68bef1ae3452024b5c39d63.jpg)
- 
-![](https://64.media.tumblr.com/327f989b445c0ffc2005395ea6481a9e/0c91b70a60d25622-d1/s1280x1920/ac5214430bbed3fb346c63efd2be3b6931798664.pnj)
+ㅤ
+
+![](https://dividers.crd.co/assets/images/gallery04/1ea51caf.png?v=05d33f91)
+
 </div>
