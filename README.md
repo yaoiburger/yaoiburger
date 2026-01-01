@@ -2,7 +2,7 @@
 
 ![](https://dividers.crd.co/assets/images/gallery04/1ea51caf.png?v=05d33f91)
   
-   ﹙ [about me](https://rentry.co/romalicious)⠀⠀<img src="https://64.media.tumblr.com/8a08f49bc8fdcc84403eb00988ac6df5/c13f60e6b277d35c-ea/s640x960/970821cb293ba28fe91a168de81e9271de43a014.pnj" width="67">⠀⠀[pt info](https://rentry.co/purrger) ﹚
+   ﹙ [about me](https://rentry.co/romalicious)⠀⠀<img src="https://64.media.tumblr.com/945af6995bf54aec1612189d71c02c96/cbdcd0ef30a22548-88/s2048x3072/ba7d11605a457c19b43db480222ae8162ac30ba7.pnj" width="100">⠀⠀[pt info](https://rentry.co/purrger) ﹚
    
 ⠀ㅤ
 <!--
