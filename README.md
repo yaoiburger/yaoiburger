@@ -11,7 +11,7 @@ Posted by alciregi, modified by community. See post 'Timeline' for change histor
 Retrieved 2025-12-23, License - CC BY-SA 4.0
 -->
 
-<img src="https://i.pinimg.com/1200x/a8/72/ee/a872eed859a9f1fe9d0e23fdc8109f2c.jpg" width="500">
+<img src="https://i.pinimg.com/736x/14/c9/a5/14c9a5dc8a82ef9c35e66289db2a7455.jpg" width="400">
 
 ㅤ
 
