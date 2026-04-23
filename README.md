@@ -2,7 +2,7 @@
 
 *⠀*
 
-𓊆⠀﹙ [about me](https://rentry.co/romalicious)⠀✦⠀<img src="https://64.media.tumblr.com/4c2a69fb3ddbfc96150190b42ed9d838/066925d4c94720e3-9a/s2048x3072/d12f7d0087723f145fed5a2ee72a3e5a59c433d4.pnj" height="75"/> ⊹⠀[more info](https://rentry.co/purrger) ﹚⠀𓊇
+𓊆⠀﹙ [about me](https://rentry.co/romalicious)⠀✦⠀<img src="https://64.media.tumblr.com/4c2a69fb3ddbfc96150190b42ed9d838/066925d4c94720e3-9a/s2048x3072/d12f7d0087723f145fed5a2ee72a3e5a59c433d4.pnj" height="75"/> ⁎⠀[more info](https://rentry.co/purrger) ﹚⠀𓊇
 
 *⠀*
 
