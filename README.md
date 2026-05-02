@@ -6,8 +6,8 @@
 
 *⠀*
 
-<img src="https://i.pinimg.com/1200x/53/07/ce/5307ce6cd1e911eb7c865b1d494874ca.jpg" height="170"/>
+<img src="https://i.pinimg.com/1200x/ce/d5/39/ced539aa6326a5242835aa8264645c77.jpg" height="240"/>
 
 *⠀*
 
-<img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "I'm a director Sid, I direct." ⸝
+<img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "My First Video Chaps!" ⸝
