@@ -1,4 +1,5 @@
 <div align="center">
+<img src="https://files.catbox.moe/7w531t.gif">
 
 *⠀*
 
@@ -11,3 +12,7 @@
 *⠀*
 
 <img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "My First Video Chaps!" ⸝
+
+*⠀*
+
+<img src="https://64.media.tumblr.com/97937857dc6568c4fec8780825ea061c/ddb75fe1265919cb-1b/s250x400/f1eeab5d556eb9bdc0e557e867270a7691ad4ce0.gifv">
