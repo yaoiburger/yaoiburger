@@ -7,11 +7,11 @@
 
 *⠀*
 
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2387_20260502210223__fliter--yellow-blue-acid__channel--red__mode--lighten.png" height="240"/>
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2387_20260503192922__fliter--yellow-blue-acid__channel--red__mode--lighten.png" height="240"/>
 
 *⠀*
 
-<img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "My First Video Chaps!" ⸝
+<img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "Rabbit or a habit, habit or a rib?" ⸝
 
 *⠀*
 
