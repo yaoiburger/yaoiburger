@@ -1,18 +1,18 @@
 <div align="center">
-<img src="https://files.catbox.moe/7w531t.gif">
+<img src="https://i.postimg.cc/Rh0qPgFF/schizou2.png">
 
 *⠀*
 
-𓊆⠀﹙ [about me](https://rentry.co/romalicious)⠀✦⠀<img src="https://64.media.tumblr.com/4c2a69fb3ddbfc96150190b42ed9d838/066925d4c94720e3-9a/s2048x3072/d12f7d0087723f145fed5a2ee72a3e5a59c433d4.pnj" height="75"/> ⁎⠀[more info](https://rentry.co/purrger) ﹚⠀𓊇
+𓊆⠀﹙ [about me](https://rentry.co/romalicious)⠀✦⠀<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2443_20260519023810.png" height="75"/> ⁎⠀[more info](https://rentry.co/purrger) ﹚⠀𓊇
 
 *⠀*
 
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2387_20260503192922__fliter--yellow-blue-acid__channel--red__mode--lighten.png" height="240"/>
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2441_20260519021218.png" height="250"/>
 
 *⠀*
 
-<img src="https://64.media.tumblr.com/73a1acca75d81a58cac2dd7f6fef6630/066925d4c94720e3-a6/s2048x3072/f7860e1ac1abbccdcb6376a839141f6f2fa448bd.pnj" height="45"/> ⠀ ͏͏͏ 𝜗ৎ⠀ "Rabbit or a habit, habit or a rib?" ⸝
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2442_20260519023747.png" height="65"/> ⠀ ͏͏͏ ⠀ "See? I'm real."⠀ 𓂃
 
 *⠀*
 
-<img src="https://64.media.tumblr.com/97937857dc6568c4fec8780825ea061c/ddb75fe1265919cb-1b/s250x400/f1eeab5d556eb9bdc0e557e867270a7691ad4ce0.gifv">
+<img src="https://i.postimg.cc/W38h6BsC/schizou3.png">
