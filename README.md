@@ -9,9 +9,10 @@
 
 <img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2441_20260519021218.png" height="350"/>
 
-*⠀*
 
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2442_20260519023747.png" height="65"/> ⠀ ͏͏͏ ⠀ "See? I'm real."⠀ 𓂃
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2442_20260519023747.png" height="65"/> ⠀ ͏͏͏ ⠀ pinky gauthier's husband ! ⠀ 𓂃
+
+𑣲⠀ no#1 lucky / lucy mancini & donald andserson fan ˖⠀ 𐦯
 
 *⠀*
 
