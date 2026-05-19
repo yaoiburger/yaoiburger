@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.postimg.cc/Rh0qPgFF/schizou2.png">
+<img src="https://i.postimg.cc/Rh0qPgFF/schizou2.png" height="100"/>
 
 *⠀*
 
@@ -7,7 +7,7 @@
 
 *⠀*
 
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2441_20260519021218.png" height="250"/>
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2441_20260519021218.png" height="350"/>
 
 *⠀*
 
@@ -15,4 +15,4 @@
 
 *⠀*
 
-<img src="https://i.postimg.cc/W38h6BsC/schizou3.png">
+<img src="https://i.postimg.cc/W38h6BsC/schizou3.png" height="100"/>
