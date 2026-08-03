@@ -3,7 +3,7 @@
 
 [𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/romalicious) $${\color{#000000}✚}$$ [𝗣𝗧 𝗜𝗡𝗙𝗢](https://rentry.co/purrger)
 
-$${\color{#000000}◗}$$ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://purgieburgie.straw.page/) $${\color{#000000}◖}$$
+$${\color{#000000}◆}$$ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://purgieburgie.straw.page/) $${\color{#000000}◆}$$
 
 $${\color{#000000}⠀}$$
 
