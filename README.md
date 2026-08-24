@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/IMG_1011%20(1).png" height="400"/>
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/divd.png" height="400"/>
 
 $${\color{#000000}⠀}$$
 ⠀
