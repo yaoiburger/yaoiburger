@@ -36,6 +36,8 @@ $${\color{#000000}⠀}$$
 
 <img src="https://file.garden/Zu8FAWV7oGLUP1JV/Untitled2719.png" height="100"/>
 
-<img src="https://file.garden/Zu8FAWV7oGLUP1JV/yippee.png" height="50"/>
+$${\color{#000000}⠀}$$
 
-@pt-hall-of-media TYZM GOATS!!!!!!!!
+<img src="https://file.garden/Zu8FAWV7oGLUP1JV/yippee.png" height="40"/>
+
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) TYZM GOATS!!!!!!!!
