@@ -24,7 +24,7 @@ $${\color{#000000}⠀}$$
 
 [<img src="https://file.garden/Zu8FAWV7oGLUP1JV/taber2.png" height="70"/>](https://rentry.co/romalicious)⠀⠀[<img src="https://file.garden/Zu8FAWV7oGLUP1JV/taber2.png" height="70"/>](https://rentry.co/purrger)
 
-[<img src="https://file.garden/Zu8FAWV7oGLUP1JV/taber2.png" height="70"/>](https://purgieburgie.straw.page/)
+[<img src="https://file.garden/Zu8FAWV7oGLUP1JV/taber2.png" height="70"/>](https://gecpilled.straw.page/)
 
 $${\color{#D3AFC7}↑⠀art⠀above⠀by⠀@fishfart7⠀on⠀tiktok!!!⠀↑}$$
 
